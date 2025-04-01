@@ -1,5 +1,5 @@
 ## Hey, I'm Nipun! 👋
-
+for freelance work? do reach, [email](mailto:nipunrjay@gmail.com) :)
 <!--
 **NipunCodes/NipunCodes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
